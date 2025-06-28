@@ -1,6 +1,6 @@
 # 红杏VPN官网地址
 
-最新地址：[hx666.info](https://hx666.02000.net/#/register?code=5NDZWL1q)
+最新地址：[hx666.info](https://www.xn--8qv123c.co/auth/register?code=AEROlbR1)
 
 ## 红杏VPN介绍
 
